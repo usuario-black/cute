@@ -7,6 +7,7 @@
 -sou aluno do ensino medio🏫
 -email 00001136512810sp@al.educacao.sp.gov.br🔖
 ![](https://media1.tenor.com/m/V9xU8I3VpjMAAAAd/stray-kids-skz.gif)
-![](https://media1.tenor.com/m/V9xU8I3VpjMAAAAd/stray-kids-skz.gif)
+![](https://media.tenor.com/8zVcY7rcNZkAAAAi/silly-cat-cat.gif)
+
 
 
