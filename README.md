@@ -13,6 +13,6 @@
 
 ![](https://media1.tenor.com/m/V9xU8I3VpjMAAAAd/stray-kids-skz.gif)
 
-![](
+![](https://media1.tenor.com/m/jPr5RgyY3tsAAAAC/stray-kids-skz.gif)
 
 
