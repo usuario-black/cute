@@ -11,7 +11,7 @@
 
 [![](https://media1.tenor.com/m/rj0gFcS6dnYAAAAC/skz-skz-funny.gif)
 
-![](
+![](https://media1.tenor.com/m/V9xU8I3VpjMAAAAd/stray-kids-skz.gif)
 
 ![](
 
